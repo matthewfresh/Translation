@@ -1,1 +1,4 @@
-# Translation
+Chongqing King Berry (importing and exporting) Trading Co., Ltd. is located in the beautiful mountain city---Chongqing. Chongqing is one of the main production bases of automobile and motorcycle; The company was founded in March 2015, mainly engaged in motorcycle and spare parts, auto parts, medical equipment and other products;
+With business values of "Integrity", "Professional" and "Dedication", we have been providing customers with the best, the most cost-effective products.
+With the development of the company, our customers have been all over the world. And our company has got the trust of domestic and foreign customers with a good reputation.
+Chongqing King Berry (importing and exporting) Trading Co., Ltd. is heartily expecting that with us progress hand in hand and set up a brilliant future.
